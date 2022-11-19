@@ -1,2 +1,2 @@
-# LAB7
+# Teeradon taengtang 336B
  
